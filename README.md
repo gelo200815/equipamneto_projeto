@@ -1,0 +1,1 @@
+# equipamneto_projeto
